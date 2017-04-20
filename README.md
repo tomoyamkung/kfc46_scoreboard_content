@@ -1,0 +1,1 @@
+# kfc46_scoreboard_content
